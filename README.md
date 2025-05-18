@@ -3,7 +3,9 @@
 -  I’m looking to collaborate on Startup Research and development team for learning new things and to effectively enhance my skills
   
 - Reach me
+
 www.linkedin.com/in/navinpragaash
+
 navinpragaash.g@sastra.ac.in
 
 
