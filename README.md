@@ -6,7 +6,7 @@
 
 www.linkedin.com/in/navinpragaash
 
-navinpragaash.g@sastra.ac.in
+navinpragaash.g@gmail.com
 
 
 <!---
